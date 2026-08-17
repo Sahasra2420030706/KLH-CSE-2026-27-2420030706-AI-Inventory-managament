@@ -1,0 +1,1 @@
+# KLH-CSE-2026-27-2420030706-AI-Inventory-managament
